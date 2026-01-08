@@ -1,1 +1,1 @@
-> Not all of these are important, but what is important, is to show dedication.
+> The only importance of these files is the dedication they reflect.
